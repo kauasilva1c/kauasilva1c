@@ -11,8 +11,12 @@ Here are some ideas to get you started:
 - ![](https://media.giphy.com/media/3o85xJWqnjH1Xu5rmE/giphy.gif)
 - 👯 Eu jogo vôlei
 - ![](https://media.giphy.com/media/3oEduIyl6xq3JMBdjW/giphy.gif)
-- 🤔 Organizo varias festinhas 
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🤔 Organizo varias festinhas
+- ![](https://media.giphy.com/media/blSTtZehjAZ8I/giphy.gif)
+- 😄 Gosto de ler
+- ![](https://media.giphy.com/media/0e7LM48uKwzmF7YUbs/giphy.gif)
+- ⚡ Sou da area de exatas
+- ![](https://media.giphy.com/media/WRQBXSCnEFJIuxktnw/giphy.gif)
+- ENFIM, ESSE SOU EU.
+- ![](https://media.giphy.com/media/KYi0DeomhaBx35HnQn/giphy.gif)
 
